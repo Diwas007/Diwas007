@@ -1,6 +1,6 @@
 Hi !!
 
-About:
+About me:
      (So boooring !!)
      
      I'm just an 16 year old boy who installed twrp for the first time 
